@@ -1,1 +1,6 @@
 # mad-libbing_BM0
+
+I LOVE CODE.
+I AM A CODER!
+I WILL CODE FOR SOME CHANGE!
+
